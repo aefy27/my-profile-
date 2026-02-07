@@ -12,6 +12,4 @@
 * ⚡ Fun fact: i hate twinky bottoms especially omegas
 
   <img src="<img width="736" height="736" alt="image" src="https://github.com/user-attachments/assets/250262aa-21eb-47d5-a3a9-88acf66b2e7b" />
-"/>
   <img src="<img width="500" height="281" alt="image" src="https://github.com/user-attachments/assets/68dc4941-e329-4a68-8cb8-c0188386aeb5" />
-"/>

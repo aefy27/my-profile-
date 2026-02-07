@@ -11,7 +11,7 @@
 * ❤️ I love bl
 * ⚡ Fun fact: i hate twinky bottoms especially omegas
 
-  <img src="<img width="220" height="200" alt="image" src="https://github.com/user-attachments/assets/c9aee27d-1b78-4420-9089-0431a249a182" />
+  <img src="https://i.imgur.com/HoIwdy8.gif" />
 " />
 
 

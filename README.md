@@ -10,7 +10,7 @@
 * 📫 How to reach me: dm me on instagram
 * ❤️ I love bl
 * ⚡ Fun fact: i hate twinky bottoms especially omegas
-
+<div align="center">
   <img src="https://i.imgur.com/HoIwdy8.gif" />
 " />
 

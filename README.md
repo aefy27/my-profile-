@@ -12,6 +12,6 @@
 * ⚡ Fun fact: i hate twinky bottoms especially omegas
 <div align="center">
   <img src="https://i.imgur.com/HoIwdy8.gif" />
-" />
+
 
 

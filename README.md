@@ -1,5 +1,5 @@
-<h1 align="center">fayrieeeeeee</h1>
   <img src="https://i.imgur.com/HoIwdy8.gif" />
+<h1 align="center">fayrieeeeeee</h1>
 
 
 * 👂 My name is faye!

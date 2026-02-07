@@ -1,4 +1,5 @@
-### Hi there 👋
+<h1 align="center">fayrieeeeeee</h1>
+
 * 👂 My name is faye!
 * 👩 Pronouns: she/her
 * 🔭 I’m currently working on an arduino-based obstacle detection stick prototype

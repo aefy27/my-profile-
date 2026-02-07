@@ -11,6 +11,7 @@
 * ❤️ I love bl
 * ⚡ Fun fact: i hate twinky bottoms especially omegas
 
-  <img src="<img width="736" height="736" alt="image" src="https://github.com/user-attachments/assets/250262aa-21eb-47d5-a3a9-88acf66b2e7b" />
-  <img src="https://imgur.com/gallery/studio-ghibli-jiji-hkepaOj"/>
+  <img src="<img width="220" height="200" alt="image" src="https://github.com/user-attachments/assets/c9aee27d-1b78-4420-9089-0431a249a182" />
+" />
+
 

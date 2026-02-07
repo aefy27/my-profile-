@@ -4,6 +4,7 @@
 
 
 
+<div align="left">
 
 * 👂 My name is faye!
 * 👩 Pronouns: she/her

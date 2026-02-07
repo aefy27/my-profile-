@@ -1,4 +1,6 @@
 <h1 align="center">fayrieeeeeee</h1>
+  <img src="https://i.imgur.com/HoIwdy8.gif" />
+
 
 * 👂 My name is faye!
 * 👩 Pronouns: she/her
@@ -11,7 +13,5 @@
 * ❤️ I love bl
 * ⚡ Fun fact: me
 <div align="center">
-  <img src="https://i.imgur.com/HoIwdy8.gif" />
-
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31e3wlxgnijui5kpfmakj46q3t3a&cover_image=true&theme=natemoo-re&show_offline=false&background_color=ffffff&interchange=true&profanity=false&bar_color=53b14f&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
